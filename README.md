@@ -1,1 +1,1 @@
-### Hi there 👋, I'm [Kuldeep Dhangar](linkedin.com/in/kuldeep1a)
+### Hi there 👋, I'm [Kuldeep Dhangar](https://www.linkedin.com/in/kuldeep1a/)
